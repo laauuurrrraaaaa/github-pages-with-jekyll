@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Laura's
 
-I'm glad you are here. I plan to talk about ...
+HI.
